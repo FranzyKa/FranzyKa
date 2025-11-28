@@ -15,5 +15,4 @@ Auf GitHub findest du bei mir alles, was irgendwo zwischen „funktional“, „
 
 Wenn du Lust hast, schau dich gern um — aber Achtung: Ich committe oft mit Hund auf dem Schoß und Baby am Arm.
 
-![Franzy Goes Ahead](![14BBD8E7-7959-46C9-BD89-8638E7803008](https://github.com/user-attachments/assets/2c8ed3e6-6c0b-4c3e-a3a1-6a03d9030f8c)
-)
+![bild](https://cdn.shopify.com/s/files/1/0412/2512/6042/files/Wodmagazin_-_der_Podcast_Maximilian_Kelm_Franziska_Kalloch_-_Vom_Fussbal_zur_eigenen_Box_Go_Ahead_480x480.jpg)
