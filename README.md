@@ -2,7 +2,7 @@
 
 ![bild](https://cdn.shopify.com/s/files/1/0412/2512/6042/files/Wodmagazin_-_der_Podcast_Maximilian_Kelm_Franziska_Kalloch_-_Vom_Fussbal_zur_eigenen_Box_Go_Ahead_480x480.jpg)
 
-Hi, ich bin Franzy 👋
+ **Hi, ich bin Franzy** 👋
 
 Solo-Mama, Hobby-Coderin und chronisch beschäftigt damit, mein Leben zwischen Mini-Tochter, hyperaktivem Hund, Sport, Gaming und einem riesigen Kaffeebecher zu organisieren.
 Früher war ich beruflich im Sportbereich unterwegs, heute trainiere ich hauptsächlich meinen Zeitplan – und gelegentlich noch meinen Körper.
